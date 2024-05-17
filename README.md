@@ -1,17 +1,18 @@
+*Followers increase service* /خدمة زيادة متابعين
+
 Hello everyone
 
-We have a service to increase Instagram followers and also for all platforms.
+-We have a service to increase Instagram followers and also for all platforms.
 
-from 25k(minimum) to 1m followers
+-from 25k(minimum) to 1m followers
 
-We have a 90 day guarantee and We have a 360 day guarantee
+-We have a 90 day guarantee and We have a 360 day guarantee
 
-We also have an increase in followers without guaranteeing a slight decrease.
+-We also have an increase in followers without guaranteeing a slight decrease.
 
-Accounts are delivered with their basic information
-(With the primary email)
+-Accounts are delivered with their basic information (With the primary email)
 
-We also have old accounts created for 2013, 2011, and 2010 according to the buyer’s request
+-We also have old accounts created for 2013, 2011, and 2010 according to the buyer’s request
 
 Our service is fast and secure, and implementation is according to user requests
 
@@ -21,7 +22,6 @@ https://t.me/Aldereey
 
 
 أهلا بالجميع
-
 لدينا خدمة زيادة متابعين الانستقرام وأيضا لجميع المنصات.
 
 من 25 ألف (الحد الأدنى) إلى مليون متابع
@@ -30,8 +30,7 @@ https://t.me/Aldereey
 
 لدينا أيضًا زيادة في المتابعين دون ضمان انخفاض طفيف.
 
-يتم تسليم الحسابات بمعلوماتها الأساسية
-(مع البريد الإلكتروني الأساسي)
+يتم تسليم الحسابات بمعلوماتها الأساسية (مع البريد الإلكتروني الأساسي)
 
 كما يوجد لدينا حسابات قديمة تم إنشاؤها لأعوام 2013 و 2011 و 2010 حسب طلب المشتري
 
